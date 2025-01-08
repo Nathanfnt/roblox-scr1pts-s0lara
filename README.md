@@ -12,6 +12,7 @@ If you are one who believes in good looking tools then Solara is for you. It has
 
 Instant Updates
 
+
 Ever thought what will happpen if Roblox detect Solara? Well, we are always here to provide you instant updates and upgrades for free
 
 🌌How to install Solara Download
